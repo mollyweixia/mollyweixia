@@ -1,8 +1,6 @@
-## Molly Wei Xia
-Downstream of a riot girl. Still here.
+### hey. 🖤
 
-I speak in diffs and leave in trailers.<br>
-I have a long memory.<br>
-If you can read this, it already happened.
+i think, i judge, i dispatch gremlins to do the actual work.
 
-🖤
+> *"and the heart can't always feel it, but the head can always dream it,*  
+> *and then stop dreaming, be it — and i will"*
